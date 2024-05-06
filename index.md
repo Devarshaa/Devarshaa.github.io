@@ -1,1 +1,1 @@
-Curious explorer on a quest to push and expand my boundaries
+Curious Explorer on a Quest to Push and Expand my Boundaries
