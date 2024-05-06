@@ -1,1 +1,1 @@
-I am a Deep Reinforcement Learning Research Engineer. This is a log of my learning journey
+Curious explorer on a quest to push and expand my boundaries
